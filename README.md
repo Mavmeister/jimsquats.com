@@ -1,0 +1,2 @@
+# jimsquats.com
+jimsquats.com
